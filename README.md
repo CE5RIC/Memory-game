@@ -48,3 +48,11 @@ OPTIONAL THINGS I LIKE TO ADD
 [] A FINITE AMOUNT OF GUESSES
 [] A CLASSIC "YOU DIED" IN ELDEN RING FASHION WHEN PLAYER IS OUT OF TURNS
 [] CREATE A BACKGROUND WHICH FITS THIS ELDEN RING THEME
+
+Ultimately, your journey will be defined by the strength of your own ambition. The greater your goals, the greater the challenge will be. Should you choose to claim the Lands Between as your birthright then yes, you must fight.
+
+And yes, you may die.
+
+But you will return to fight again.
+
+For that is how a champion – or a Lord – is born.
